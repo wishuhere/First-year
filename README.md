@@ -1,1 +1,1 @@
-This is a small project when i was a freshman
+This is some small projects when i was a freshman
